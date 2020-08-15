@@ -1,0 +1,1 @@
+1. Take ingredients for making the masala paste in a wet grinder – ½ cup chopped onions, ¾ cup chopped tomatoes, ½ inch ginger, 2 to 3 small to medium garlic cloves, 1 to 2 green chilies, 10 to 12 cashews (chopped), 2 tbsp coriander leaves, 4 to 5 whole black pepper, ½ inch cinnamon, 1 tsp coriander seeds & 2 to 3 cloves
